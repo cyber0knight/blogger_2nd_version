@@ -1,0 +1,1 @@
+# blogger_2nd_version
